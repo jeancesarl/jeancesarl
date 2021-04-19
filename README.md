@@ -2,7 +2,7 @@
 - 👀 I’m interested in Learn
 - 🌱 I’m currently learning programming
 - 💞️ I’m looking tô  collaborate on A company
-- 📫 I want to be a person who can do something in life
+- 📫 Meet me in the city of Goiânia
 
 <!---
 
